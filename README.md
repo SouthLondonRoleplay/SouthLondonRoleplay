@@ -15,3 +15,12 @@ Tightening Communications, Developing Trust
 > * [Discord Enquiries](https://discord.com/channels/1179206426783129620/1179207738602041555)
 > * [Community Enquiries via Email](mailto:humanresources@southlondonroleplay.co.uk?subject=Community%20Enquiry:)
 > * [Senior Leadership Enquiries via Email](mailto:seniorleadership@southlondonroleplay.co.uk?subject=Senior%20Leadership%20Enquiry:&cc=cmdr@southlondonroleplay.co.uk;csupt@southlondonroleplay.co.uk)
+
+## Senior Leadership Team
+> * Commander: Ash Sutton
+> * Chief Superintendent of Operations: Freddie Lawrence
+
+## Community Safeguarding
+> * Dedicated Safeguarding Lead for FMS: Albo1125
+> * Community Safeguarding Lead: Freddie Lawrence
+> * Community Safeguarding Supervisors: Jack Morris & Liam Easton
