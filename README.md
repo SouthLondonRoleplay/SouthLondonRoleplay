@@ -10,3 +10,7 @@ Tightening Communications, Developing Trust
 > * TikTok
 > * Instagram
 > * Public Discord
+
+## Contact Us
+> * [Discord Enquiries](https://discord.com/channels/1179206426783129620/1179207738602041555)
+> * [Email](mailto:humanresources@southlondonroleplay.co.uk)
