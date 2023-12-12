@@ -20,4 +20,4 @@ Tightening Communications, Developing Trust
 > * Commander: Ash Sutton
 > * Chief Superintendent of Operations: Freddie Lawrence
 
-Safeguarding Officers within South London Roleplay can be contacted by emailing the Senior Leadership Team with the links stated above. South London Roleplay Community take all Safeguarding concerns seriously so we expect full information and evidence to be provided to support your claim.
+> Safeguarding Officers within South London Roleplay can be contacted by emailing the Senior Leadership Team with the links stated above. South London Roleplay Community take all Safeguarding concerns seriously so we expect full information and evidence to be provided to support your claim.
